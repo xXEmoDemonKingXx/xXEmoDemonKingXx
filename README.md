@@ -1,7 +1,7 @@
 <img src="https://64.media.tumblr.com/d16c3dc5ff64d6009016dd864f5e6bef/36afa839df5dd5b9-e4/s400x600/5b04a5de04a569e8919ba2308ccb28bb2d5018d9.gifv" style="width:100%;">
 <p align="center"> 
    <br>
-   ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──
+─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──
 
 ### <p align="center"> <em> LIOFAGGGG </em> </p>　　　　
 
