@@ -3,4 +3,4 @@
 <!--
 **xXEmoDemonKingXx/xXEmoDemonKingXx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 !-->
-<img align="left" src="https://64.media.tumblr.com/87325c09bf1080613fc54efb84c8fb3b/4b21198943ee1c15-09/s1280x1920/1694552b36f414b5744fa94c487b60def41cc513.gifv" width=450 height=550>
+<img align="left" src= "https://64.media.tumblr.com/3d7f73d3f19ac0285f430191d9d4ca1a/3e36440b5e055ae2-e9/s2048x3072/ea117cfb1e04bd075c1aad0497e30eabfdc874b0.pnj" width=450 height=550>
