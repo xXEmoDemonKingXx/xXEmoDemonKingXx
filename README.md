@@ -1,7 +1,5 @@
-<div>
-<img src="https://64.media.tumblr.com/296abbda4df0f747dcebe5ba0d0ee4c4/9b360b95216ccc4d-c5/s640x960/dbf064e8cafd4e34367990091a883dd826285892.pnj">
-<p align="center">
-   </div>
+<img src="https://64.media.tumblr.com/296abbda4df0f747dcebe5ba0d0ee4c4/9b360b95216ccc4d-c5/s640x960/dbf064e8cafd4e34367990091a883dd826285892.pnj" style="width:100%;">
+<p align="center"> 
    <br>
    ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──
 
