@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/d16c3dc5ff64d6009016dd864f5e6bef/36afa839df5dd5b9-e4/s400x600/5b04a5de04a569e8919ba2308ccb28bb2d5018d9.gifv" style="width:100%;">
 <br>
 <p align="center"> ─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──
-<p align=center><em><b> LIOFAGGGG </b></em> </p>
+<p align=center><em><strong> LIOFAGGGG </em></strong> </p>
  <img align="center" src="https://64.media.tumblr.com/7ed5176a3eaa9b991bf246d1ad3915b8/b36456aa19536e8f-95/s640x960/75a1f446ef8f1d005eadc2234e27f202228c3bde.gifv" style=width:100%>
  <p align="center"> ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ── ─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ──　─── ⋅ ⋅ ⋅ ── 
  </div>
