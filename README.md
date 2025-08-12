@@ -16,7 +16,7 @@
   </div>
  <br>
 <p align="center">─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
- <p align="center">  umm add me on discord (helpjoshie) or draw on my strawpage plez
+ <p align="center">  draw on my strawpage
  <a href="https://xxemodemonkingxx.straw.page/">
 <img align"center" src= "https://media.tenor.com/lpLciCaWZrEAAAAj/momonga-chiikawa.gif" alt="strawpage">
  </a>
