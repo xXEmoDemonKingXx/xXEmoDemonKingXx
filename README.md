@@ -16,7 +16,7 @@
   </div>
  <br>
 <p align="center">─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
- <p align="center">  never interact with me because my yandere gf will hit me
+ <p align="center">  umm add me on discord (helpjoshie) or draw on my strawpage orrr follow me on twt idk anything yayyy!!!
 <img align"center" src= "https://media.tenor.com/lpLciCaWZrEAAAAj/momonga-chiikawa.gif">
 <p align="center"> ─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
  
