@@ -17,7 +17,9 @@
  <br>
 <p align="center">─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
  <p align="center">  umm add me on discord (helpjoshie) or draw on my strawpage plez
-<img align"center" src= "https://media.tenor.com/lpLciCaWZrEAAAAj/momonga-chiikawa.gif">
+ <a href="https://xxemodemonkingxx.straw.page/">
+<img align"center" src= "https://media.tenor.com/lpLciCaWZrEAAAAj/momonga-chiikawa.gif" alt="strawpage">
+ </a>
 <p align="center"> ─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
  
  <br> 
