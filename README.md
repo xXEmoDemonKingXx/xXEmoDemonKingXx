@@ -16,11 +16,10 @@
   </div>
  <br>
 <p align="center">─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
- <p align="center">  draw on my strawpage 😈
+ <p align="center">  draw on my <a href="https://xxemodemonkingxx.straw.page/"> strawpage </a> 😈
   <br>
  <a href="https://xxemodemonkingxx.straw.page/">
 <img align"center" src= "https://media.tenor.com/lpLciCaWZrEAAAAj/momonga-chiikawa.gif" alt="strawpage">
-  <p align="center"> click momonga
  </a>
 <p align="center"> ─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
  
