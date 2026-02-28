@@ -16,9 +16,9 @@
   </div>
  <br>
 <p align="center">─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
- <p align="center">  draw on my <a href="https://xxemodemonkingxx.straw.page/"> strawpage </a> 😈
+ <p align="center">  draw on my <a href="https://joshiejoshiejoshie.straw.page/"> strawpage </a> 😈
   <br>
- <a href="https://xxemodemonkingxx.straw.page/">
+ <a href="https://joshiejoshiejoshie.straw.page/">
 <img align"center" src= "https://media.tenor.com/lpLciCaWZrEAAAAj/momonga-chiikawa.gif" alt="strawpage">
  </a>
 <p align="center"> ─── ⋅ ⋅ ⋅ ── ─── ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ─── ─── ⋅ ⋅ ⋅ ──
